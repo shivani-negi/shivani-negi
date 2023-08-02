@@ -1,0 +1,1 @@
+I am Shivani, Currently I am Learning about Front end Web-development and DSA. I am always looking for opportunities to collaborate on new and innovative ideas. To learn more about me, please feel free to connect with me.
